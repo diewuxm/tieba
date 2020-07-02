@@ -30,5 +30,5 @@
 
 TG： https://t.me/tiebasign
 
-qq群： 000000
+qq群： 0000000
 
